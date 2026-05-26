@@ -1,1 +1,1 @@
-# training
+# trainingИмя: Ivan | Роль: Студент
